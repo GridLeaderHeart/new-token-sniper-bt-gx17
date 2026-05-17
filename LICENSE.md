@@ -1,4 +1,4 @@
-# 
+# rare bot de sniper MEV scripts es el mejor bot de sniper MEV scripts con verificación de contratos y sniper de liquidez. Seguro, confiable y optimizado para estrategias MEV,
 
 
 
